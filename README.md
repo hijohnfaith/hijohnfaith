@@ -1,4 +1,3 @@
-![](https://komarev.com/ghpvc/?username=2nddeath&color=grey&label=hi)
 
 ![ezgif-3-4cd621ea0d](https://github.com/user-attachments/assets/bd97d571-6c6f-4949-9ef8-9527557a84e0)
 
