@@ -1,5 +1,7 @@
+<img width="99" height="56" alt="john_stamp_1" src="https://github.com/user-attachments/assets/2d08c373-0d13-4c86-84f6-100c380b48bc" />
+<img width="99" height="56" alt="john_stamp_3" src="https://github.com/user-attachments/assets/1528bf61-55b4-4e24-be5a-b507f20944b0" />
+<img width="99" height="56" alt="john_stamp_2" src="https://github.com/user-attachments/assets/315cb1ad-f38c-4b84-b241-d99f490a001e" />
 
-![ezgif-3-4cd621ea0d](https://github.com/user-attachments/assets/bd97d571-6c6f-4949-9ef8-9527557a84e0)
 
 
 
